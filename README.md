@@ -1,2 +1,11 @@
 
-<img src="https://static.wikia.nocookie.net/cookierunkingdom/images/5/54/Cookie0070-personal1.gif/revision/latest/scale-to-width-down/204?cb=20240904070316" width="500" align="center" alt="gayness"> c + h comfortable !! pls come and cuddle with me <33
+
+<img src="https://i.postimg.cc/mr4Qtd87/Untitled603-20260808184316.png" width="300" align="left">⠀⠀⠀⠀
+<table>
+<tr>
+<td>
+${\textsf{\color{#484b99} wip}}$ 
+</td>
+</tr>
+
+</table>⠀⠀⠀⠀⠀⠀
