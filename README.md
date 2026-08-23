@@ -30,5 +30,5 @@ ${\textsf{\color{#c2bcd2}𓏼   ᥲ   }}$ ㅤㅤ ${\textsf{\color{#c2bcd2} hᥱ�
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![snores](https://komarev.com/ghpvc/?username=pierrotpartner&color=EDCAD2&label=ㅤ　foolsㅤㅤ　)
 
-ㅤ<img src="https://i.postimg.cc/4xSmj782/Tumblr-l-1014673480834129.gif" width="20"> ㅤ ${\textsf{\color{#C3BCD2} " ᥉𝗂gᥒ hᥱr ᥲtᥲ. }}$ㅤㅤ  [atabook](https:oxn.atabook.org/)ㅤㅤ ${\textsf{\color{#EDCAD2} alright. " }}$ㅤㅤ ${\textsf{\color{#FFFFF0} ―  ρ𝗂ᥱrᥴᥱ  }}$ㅤㅤ
+ㅤ<img src="https://i.postimg.cc/4xSmj782/Tumblr-l-1014673480834129.gif" width="20"> ㅤ ${\textsf{\color{#C3BCD2} " ᥉𝗂gᥒ hᥱr ᥲtᥲ. }}$ㅤㅤ  [atabook](https://oxn.atabook.org/)ㅤㅤ ${\textsf{\color{#EDCAD2} alright. " }}$ㅤㅤ ${\textsf{\color{#FFFFF0} ―  ρ𝗂ᥱrᥴᥱ  }}$ㅤㅤ
 <br>
